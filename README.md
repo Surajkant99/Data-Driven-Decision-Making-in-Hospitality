@@ -42,7 +42,7 @@ The hospitality industry faces challenges in:
 - Targeted interventions—optimized pricing, focused marketing, improved guest experience—can significantly lift both revenue and guest retention
 
 ## 🔗 Important links
-- [Linkedin Post]()
+- [Linkedin Post](https://www.linkedin.com/feed/update/urn:li:activity:7362459389661761537/)
 
 ## 📞 Contacts
 - [Protfolio](https://codebasics.io/portfolio/Suraj-Kant)
